@@ -1,4 +1,4 @@
-### Hi there 👋
+### ✨TIL : https://narrow-traffic-fb6.notion.site/TIL-4deec642418942739b92f650eb851a79 ✨
 
 <!--
 **JAEJOON-LEE/JAEJOON-LEE** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
